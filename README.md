@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @TBase7
+- 👀 I’m interested in web design
+- 📫 How to reach me on discord (TBase#8616)
